@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LM30-fan
+- 👀 I’m interested in coding, making games and websites
+- 🌱 I’m currently learning java
+- 📫 How to reach me - my discord id LM30_fan#5993
